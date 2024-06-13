@@ -48,4 +48,4 @@ Os resultados dos testes estão documentados e demonstram a conformidade do apli
 
 ---
 
-Qualquer dúvida fico à disposição através do WhatsApp (62 9 8261-1790) ou do e-mail (italo.santanaa1998@gmail.com).
+Qualquer dúvida fico à disposição através do e-mail (italo.santanaa1998@gmail.com).
